@@ -1,2 +1,2 @@
 # Minerva_Kim
-## I LOVE INFORMATICS!
+## I LOVE INFORMATICS! <3 practice
